@@ -1,3 +1,5 @@
+<img width="1564" alt="logolarge" src="https://github.com/user-attachments/assets/9cdf3764-708b-44f6-9ee6-f5b93b480f77" />
+
 # sigma ⚡︎ firma?
 
 ## ABOUT
